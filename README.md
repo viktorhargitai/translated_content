@@ -1,1 +1,0 @@
-# translated_content
